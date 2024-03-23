@@ -17,7 +17,7 @@ khj kh ;lk'l; k
 r st fxg x
 grdtg rdg dr/kbj.,mb/.n,k,/
 fdhg fh gyjtj ts
-rt edtr r
+rt edtr r.,;jbn.k
 rvrt grtg ergt  dfs
 xfdcghbjklm;,.
 tucfygvkbl;m,'./s
